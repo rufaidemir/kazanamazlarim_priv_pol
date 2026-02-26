@@ -58,4 +58,4 @@ Bu Gizlilik Politikası gerektiğinde güncellenebilir. Güncellemeler bu dosya 
 
 Gizlilik Politikası ile ilgili sorularınız için aşağıdaki e-posta adresi üzerinden iletişime geçebilirsiniz:
 
-📧 rufaidemir@protonmain.com
+📧 rufai.demir@yaani.com
